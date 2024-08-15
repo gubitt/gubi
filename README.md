@@ -4,4 +4,3 @@
 ## Utilizo esse espaço para inha organização e compartilho meus projetos desenvolvidos
 ! [https://tenor.com/pt-BR/view/qaz-gif-23134321] (https://media.tenor.com/aJkfIlKyn_gAAAAi/qaz.gif) 
 - ## Estou estudando na [Alura] (https://www.alura.com.br)
-- 
